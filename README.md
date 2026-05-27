@@ -1,15 +1,11 @@
-## I'LL SEE YOU ON THE MOON ...
-### SHADOW . *HE/IT/XEY*
-***https://rentry.co/starzcollide***
+## THE SILVER SYSTEM.
+Traumagenic DID system of 20
 
-***https://newmakerplane.atabook.org***
+Collective terms:
 
-FICTIVE . SOURCE-ATTACHED
+Alex . *He/they*
 
-I have like 500 disorders, please be patient.
 
-Chronically ill.
 
-I gladly accept friend requests and interaction.
+## WHO ARE YOU LOOKING FOR?
 
-DO NOT attempt to roleplay with me. You will be promptly blocked if you do.
