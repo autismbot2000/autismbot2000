@@ -1,4 +1,4 @@
-## "誤魔化すのが上手でだめですか？"
+## ["誤魔化すのが上手でだめですか？"](https://open.spotify.com/track/2u2kyKAf9mpQegLo9IedWA)
 Sage . *she/it*
 
 ***Fictive - Source-attached/positive***
