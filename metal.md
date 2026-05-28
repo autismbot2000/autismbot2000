@@ -5,6 +5,8 @@ Fictive . source-positive
 
 iwec, i tend to be overly aggressive sometimes
 
+AGENDER / AROACE
+
 ## BOUNDARIES
 just don't be a dick, c + h always okay
 
