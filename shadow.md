@@ -7,7 +7,19 @@ FICTIVE . SOURCE-ATTACHED
 I gladly accept friend requests and interaction.
 
 ## BOUNDARIES
-DO NOT attempt to roleplay with me. You will be promptly blocked if you do.
+Don't act like you know me if we share a source. Take me out to dinner first.
+
+Do not attempt to roleplay with me. You will be promptly blocked if you do.
 
 C + H is alright, please ask first.
 
+## DNI
+Proshippers and loli/shotacons. Full stop.
+
+Paraphiles. I don't care if you're "anti-contact", get the fuck away from me.
+
+T.R.A.S.H. (Transphobes/TERFS, racists, ableists, sexists, homophobes.)
+
+Endogenic/willogenic "systems." Don't fucking talk to me. Ever.
+
+Doubles are free to interact with me, I might get mildly irritated if it's out of nowhere, however.
