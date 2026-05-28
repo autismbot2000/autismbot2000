@@ -1,9 +1,8 @@
 ## THE SILVER SYSTEM.
 Traumagenic DID system of 20
 
-Collective terms:
-
 Alex . *He/they*
+
 *AuDHD (Inattentive), OCD, STPD, C-PTSD, DID* (Suspected BPD, NPD, ASPD) 
 
 **hEDS, ME/CFS**
