@@ -1,4 +1,4 @@
-## "いずれ粉々の塵々にしてやる!"
+## ["いずれ粉々の塵々にしてやる!"](https://vocaloidlyrics.miraheze.org/wiki/%E6%80%AA%E7%8D%A3%E3%81%AB%E3%81%AA%E3%82%8A%E3%81%9F%E3%81%84_(Kaijuu_ni_Naritai))
 HACK(NINE)!!! HE/IT
 
 i'm normal all the time
