@@ -14,12 +14,12 @@ Do not attempt to roleplay with me. You will be promptly blocked if you do.
 C + H is alright, please ask first.
 
 ## DNI
-Proshippers and loli/shotacons. Full stop.
+Proshippers and loli/shotacons.
 
 Paraphiles. I don't care if you're "anti-contact", get the fuck away from me.
 
 T.R.A.S.H. (Transphobes/TERFS, racists, ableists, sexists, homophobes.)
 
-Endogenic/willogenic "systems." Don't fucking talk to me. Ever.
+Endogenic/willogenic "systems."
 
 Doubles are free to interact with me, I might get mildly irritated if it's out of nowhere, however.
