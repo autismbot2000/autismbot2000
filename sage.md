@@ -14,8 +14,8 @@ Proship/profic
 
 Lolisho
 
-Paraphiles. I don't care if you're anti-contact.
+Paraphiles (excluding objectums because if they were included it would be friendly fire)
 
-Endogenic/willogenic "systems".
+Endogenic/willogenic systems
 
 T.R.A.S.H.
