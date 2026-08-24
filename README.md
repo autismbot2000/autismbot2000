@@ -3,14 +3,14 @@ Traumagenic DID system of 20
 
 Alex . *He/they*
 
-*AuDHD (Inattentive), OCD, STPD, C-PTSD, DID* (Suspected BPD, NPD, ASPD) 
+*AuDHD (Inattentive), OCD, STPD, C-PTSD, DID*
 
 **hEDS, ME/CFS**
 
 [pronouns.cc](https://pronouns.cc@thafware)
 
 
-## WHO ARE YOU LOOKING FOR?
+## WHO ARE YOU LOOKING FOR? (WIP, NOT EVERYONE IS HERE)
 01. [Sage](https://github.com/autismbot2000/autismbot2000/blob/main/sage.md)
 02. [Shadow](https://github.com/autismbot2000/autismbot2000/blob/main/shadow.md)
 03. [Metal](https://github.com/autismbot2000/autismbot2000/blob/main/metal.md)
