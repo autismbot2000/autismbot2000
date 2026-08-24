@@ -3,7 +3,7 @@ Sage . *she/it*
 
 ***Fictive - Source-attached/positive***
 
-Unlabelled gender + sexuality (https://pronouns.cc/@thafware/Sage)
+Unlabelled gender + sexuality (https://pronouns.cc/@thafware/sage)
 ## Boundaries
 Sourcemates may interact! It brings me great joy to interact with you ^_^
 
