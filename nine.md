@@ -3,9 +3,9 @@ NINE * HE/HIM
 
 fictive * source-negative
 
-iwc.
+iwc
 
-transmasc / demisexual achillean
+ftm / demiaroace achillean unutrasexual
 ## boundaries
 if you're nice to me i'll be nice to you.
 
