@@ -17,3 +17,9 @@ Alex . *He/they*
 04. [Nine](https://github.com/autismbot2000/autismbot2000/blob/main/nine.md)
 05. [Hack](https://github.com/autismbot2000/autismbot2000/blob/main/hack.md)
 06. [Ware](https://github.com/autismbot2000/autismbot2000/blob/main/ware.md)
+
+↓ wanna see what we're listening to? ↓
+
+![my last.fm stats](https://github-readme-lastfm-stats.netlify.app/.netlify/functions/card?user=xoxoshep&theme=dark&show_scrobbles=true)
+
+(our last.fm is [here](https://last.fm/user/xoxoshep))
